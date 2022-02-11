@@ -1,2 +1,1 @@
-# Codleaks.github.io
-Telling you the leaks
+Telling you the leaks about call of duty and on :D
